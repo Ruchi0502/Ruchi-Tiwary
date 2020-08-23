@@ -1,2 +1,0 @@
-# Ruchi-Tiwary
-IT Enthusiast
